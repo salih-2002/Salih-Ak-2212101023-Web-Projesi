@@ -1,1 +1,12 @@
-# Salih-Ak-2212101023-Web-Projesi
+# Salih-Ak-2212101023-Web-Projesi![Ekran Görüntüsü (12)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/d1e43c28-8510-4eba-9c2e-dc92c3ca500b)
+![Ekran Görüntüsü (11)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/0388353d-097b-4f1d-877c-214b243bd6ce)
+![Ekran Görüntüsü (10)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/da4b9554-9a35-4d48-9736-b7138a542525)
+![Ekran Görüntüsü (9)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/fd1a27dc-90ff-4375-8d14-456b8e10a0f0)
+![Ekran Görüntüsü (8)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/d3b984d6-f59d-4b35-9938-6d39063ee400)
+![Ekran Görüntüsü (7)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/72e10207-9202-4ea6-99a7-c2cfa018eba9)
+![Ekran Görüntüsü (6)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/f7ed41cc-8a55-4bc4-a3f0-c3df745ac236)
+![Ekran Görüntüsü (5)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/a4bf5022-c0dd-4cc9-982d-5de9af2a42da)
+![Ekran Görüntüsü (4)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/414ba496-6d57-4468-8f73-e2a24b1f0ed9)
+![Ekran Görüntüsü (3)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/9bc4f283-25e3-48de-b959-c259012acf39)
+![Ekran Görüntüsü (2)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/5f0c6848-26de-4645-a6b9-07f94f73b14c)
+![Ekran Görüntüsü (1)](https://github.com/salih-2002/Salih-Ak-2212101023-Web-Projesi/assets/117658738/57f89209-218b-4809-9dbc-f10128f5024f)
